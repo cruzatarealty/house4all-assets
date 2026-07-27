@@ -1,0 +1,1 @@
+# house4all-assets
